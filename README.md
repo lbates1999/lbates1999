@@ -1,4 +1,4 @@
-Lane Bates
+### Hi there 👋, Lane Bates
 #### Networking and Development
 ![Networking and Development](https://x.com/lanebates/header_photo)
 
