@@ -1,6 +1,6 @@
 Lane Bates
 #### Networking and Development
-![Networking and Development](https://www.canva.com/design/DAGN4JD-Ri4/zIazU1YpYTRJ9RYbq32aqA/view?utm_content=DAGN4JD-Ri4&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+![Networking and Development](file:///C:/Users/lbate/Downloads/Grey%20minimalist%20business%20project%20presentation%20%20(2).pdf)
 
 I am from North Carolina and I am a Network/Software Engineer.
 
